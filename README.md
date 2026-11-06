@@ -1,0 +1,2 @@
+# PR-IdeaPad-Vibe-CM-GDN-MK-XX-LG-EN-RP-XX-CS-728x90-FS-Qualcomm-CR-LAB-2
+PR-IdeaPad-Vibe-CM-GDN-MK-XX-LG-EN-RP-XX-CS-728x90-FS-Qualcomm-CR-LAB-2
